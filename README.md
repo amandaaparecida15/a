@@ -13,6 +13,7 @@ amanda.elias@escola.pr.gov.br
 
 Amandaaparecida
 
+![descrição do GIF](https://media.tenor.com/2vzT-8oPXl8AAAAj/tkthao219-bubududu.gif)
 
 
 
